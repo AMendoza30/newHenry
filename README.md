@@ -5,3 +5,4 @@ y el te quiere
 no te preocupes el llorara por ti 
 diego es tuyo
 y tu eres de el 
+el se va a arrepentir muy tarde
